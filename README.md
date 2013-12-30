@@ -1,7 +1,7 @@
+![Sample Image](https://dl.dropboxusercontent.com/u/101688/website/img/fox_black_with_honor.png)
+
 The Fox is Black
 ================================
-
-![Sample Image](https://dl.dropboxusercontent.com/u/101688/website/img/fox_black_with_honor.png)
 
 Desktop Wallpaper Project
 ----------------------------
